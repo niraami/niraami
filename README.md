@@ -1,4 +1,4 @@
-## I finish things *sometimes*
+## *I do fucking everything... and don't finish most of it*
 
 <br />
   
